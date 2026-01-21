@@ -26,7 +26,7 @@ This website consists of the following pages:
 2. **About Us** – Company profile and mission
 3. **Services** – CCTV installation, maintenance, AMC
 4. **Products** – CCTV cameras, DVR/NVR, accessories
-5. **Contact** – Phone, email, and service area details
+5. **Contact** – Phone(03208098344), email(mughaluzair900@gmail.com), and service area details(KPK)
 
 ---
 
